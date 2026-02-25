@@ -1,0 +1,1 @@
+ever wanna use ai, but like, not good? welcome to trashAItool.
